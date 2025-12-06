@@ -1,0 +1,2 @@
+# SIGED.certificado.preparatoria.autenticacion.LUGI810515HDFNTS05
+LUGI810515HDFNTS05
